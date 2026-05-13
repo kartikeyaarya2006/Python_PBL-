@@ -543,6 +543,6 @@ Aayush Rawat
 Aashish Singh
 
 
-B.Tech CSE (AI & ML)
+B.Tech CSE 
 
 Graphic Era University
